@@ -1,0 +1,2 @@
+# edu-milliy-uz
+Public
